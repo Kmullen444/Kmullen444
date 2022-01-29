@@ -3,7 +3,8 @@
 
 Since the pandemic hit in 2020, I decided it was time for a bit of a change.
 Having a love for problem solving and learning, software development seemed like
-a prefect choice.
+a prefect choice. So I've brougth the skills I've cultivated from years of working
+in fine dining restaurants over and have beening having a blast ever since.
 
 ### So come on in and have a look around.
 
